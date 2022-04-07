@@ -8,3 +8,6 @@ https://jojoldu.tistory.com/
 
 #### 안희종님
 https://ahnheejong.name/
+
+#### nhn next 창립자
+https://hl1itj.tistory.com/
